@@ -1,0 +1,1 @@
+https://raw.githubusercontent.com/Pixel-kill/widgetWhatsapp/main/images/Screenshot_1.png
